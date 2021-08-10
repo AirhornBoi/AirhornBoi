@@ -10,6 +10,8 @@ Hi, I'm AirhornBoi, but you can call me Airhorn for short. I can't tell you much
 
 *beep goes the airhorn*
 
+**Hope you like my profile and happy airhorning!**
+
 <!---
 AirhornBoi/AirhornBoi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
